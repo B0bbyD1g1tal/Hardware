@@ -14,3 +14,6 @@
 
 ### Handlebar
 [Kalloy HBFB11](https://www.kalloyuno.com/product/handlebars/flat/hbfb11)
+
+### Headset
+https://www.gw-mfg.com/product.php?ta=3
