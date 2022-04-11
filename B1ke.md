@@ -34,3 +34,11 @@ https://www.vpcomponents.com/bottom-brackets
 VP-BC73C https://static1.squarespace.com/static/61670274bf441246b4b16da6/t/616727336b78dc0301d14f12/1634150210040/VP-2020.pdf
 
 https://velosiped.bg/obr-ch-x-12-28-32h-cherno.html
+
+https://www.marwi-eu.com/823.php
+
+https://www.clarkscyclesystems.com/product-range/brake-systems/hydraulic-disc-brakes/m2-hydraulic-brake-2648.html?att_color=40&attr_diameter=969&attr_wheel_option=224
+
+https://www.continental-tires.com/bicycle/tires/urban-tour/contact-urban
+
+https://ursus.it/shop/urban-city/kickstands/wave-81/
