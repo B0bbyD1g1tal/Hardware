@@ -28,3 +28,7 @@ https://www.selleroyal.com/en/products/archive/essenza
 https://www.promaxcomponents.com/product/sp-1-seatpost/
 
 https://www.gatescarbondrive.com/products
+
+### BOTTOM BRACKET
+https://www.vpcomponents.com/bottom-brackets 
+VP-BC73C https://static1.squarespace.com/static/61670274bf441246b4b16da6/t/616727336b78dc0301d14f12/1634150210040/VP-2020.pdf
