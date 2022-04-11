@@ -42,3 +42,7 @@ https://www.clarkscyclesystems.com/product-range/brake-systems/hydraulic-disc-br
 https://www.continental-tires.com/bicycle/tires/urban-tour/contact-urban
 
 https://ursus.it/shop/urban-city/kickstands/wave-81/
+
+https://www.sks-germany.com/en/products/edge-al/
+
+https://www.sks-germany.com/en/products/chainblade-158-mm/
