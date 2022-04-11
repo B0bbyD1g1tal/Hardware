@@ -17,3 +17,6 @@
 
 ### Headset
 https://www.gw-mfg.com/product.php?ta=3
+
+### Grips
+https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwiTgb68lIz3AhVbQvEDHT86CQcQFnoECAoQAQ&url=https%3A%2F%2Fwww.yumpu.com%2Fen%2Fdocument%2Fview%2F8188872%2Funtitled-velo-saddles&usg=AOvVaw3IoI8lXBXa7wVfCJsU6WhJ
